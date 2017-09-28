@@ -1,0 +1,2 @@
+# UFV
+UFVCOIN
